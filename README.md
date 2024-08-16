@@ -2,7 +2,7 @@
 - Looking for a great company in Artificial Intelligence field specialisation.
 - Languages which i prefer most are Python/Java/C++/C#/SQL and would like to learn and get more experience on other different languages too.
 - Here are some of my social link to connect with me----->
-- Insta - https://www.instagram.com/ag18fr/?next=%2F
+- 
 - 
 - 
 
